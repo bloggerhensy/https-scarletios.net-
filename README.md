@@ -1,1 +1,1 @@
-# https-scarletios.net-
+Are you looking for an alternative way to avoid the App Store crowd? Your search has ended. Introducing [Scarletios](https://scarletios.net/), a fantastic marketplace for third-party apps that has been painstakingly designed to perfectly meet your needs.
